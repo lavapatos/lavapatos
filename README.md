@@ -12,7 +12,7 @@ Also, I was generated in Chile 🇨🇱 (with minor defects).</p>
 >> i love hairy hamsters (don't ask, just accept)
 >> i consume Kojima's work and mote con huesillo
 >> i resemble a shrimp (confirmed by my girlfriend)
->> i quite fond of Metroid games
+>> i am quite fond of Metroid games
 </pre>
 
 <h2>I NEED TO EAT (FOOD)</h2>
